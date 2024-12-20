@@ -24,6 +24,6 @@ I believe in the power of collaboration and am always open to discussions, feedb
 
 ### Contact
 - **Email**: mehmetemir.ugurlu@std.yeditepe.edu.tr
-- **İnstagram**: mehmetemir_ugurlu
+- **İnstagram**: (https://instagram.com/mehmet.emirugurlu)
 - 
 Thank you for your interest and support. Together, let’s create meaningful designs that make an impact!
